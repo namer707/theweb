@@ -1,1 +1,2 @@
-Goal to become worst browaser on market.
+Hey everyone!
+Globeball will become the worst browser ever.  Confusing, chunky, and horrible.
